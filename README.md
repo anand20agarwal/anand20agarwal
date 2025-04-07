@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **anandagarwaljob@gmail.com**
  
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_B4h2TAlV-doJv9H5CtksB_GafGu_p18/view?usp=drive_link](https://drive.google.com/file/d/1_B4h2TAlV-doJv9H5CtksB_GafGu_p18/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LzEX0r9wav9dghLQuruLiSnOQN5O3coN/view?usp=sharing](https://drive.google.com/file/d/1LzEX0r9wav9dghLQuruLiSnOQN5O3coN/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
